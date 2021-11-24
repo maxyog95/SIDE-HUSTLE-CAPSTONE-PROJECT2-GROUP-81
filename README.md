@@ -1,1 +1,1 @@
-# SIDE-HUSTLE-CAPSTONE-PROJECT2-GROUP-81
+This is Group 81 Capstone Project 2 for SideHustle Internship
